@@ -1,0 +1,1 @@
+# privacypolicy_ja
